@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nyxi25
-- 👀 VRC Team 10E
+- 👀 VRC Team 10V
 - 🌱Class of 2027 STEM HS
 
 
